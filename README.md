@@ -1,5 +1,3 @@
 #A SYSTEM TO SECURE ALL YOUR DEVICES
-
-We are launching soon!
-
-On 25 June we shall unveil the newest product to the market.
+#Proteger is a brand by itself.
+#A product that solves problems of electronic devices and gadgets
